@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bpiasecki-MAXX
+- 👀 I’m interested in Computer Science / Programming, Cyber Security, Automation, and over doing maintenance on my Desktop.
+- 🌱 I’m currently learning way too many things.
+- 💞️ Uncollaboratable
+- 📫 Unreachable
